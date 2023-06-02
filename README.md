@@ -12,5 +12,4 @@ oculosgabriel0876@gmail.com
 
 @Akashi
 
-
-https://media.tenor.com/lhQC-JBMt2YAAAAC/mar-naruto.gif
+![](https://media.tenor.com/lhQC-JBMt2YAAAAC/mar-naruto.gif)
