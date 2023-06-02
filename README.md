@@ -12,4 +12,5 @@ oculosgabriel0876@gmail.com
 
 @Akashi
 
-![descrição do GIF](link GIF do Tenor)
+
+https://media.tenor.com/lhQC-JBMt2YAAAAC/mar-naruto.gif
