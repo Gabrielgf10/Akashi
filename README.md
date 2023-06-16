@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil 💙
 
-Meu nome é Marcelo Paludetto
+Meu nome é  Akashi
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
@@ -12,4 +12,4 @@ oculosgabriel0876@gmail.com
 
 @Akashi
 
-![](https://media.tenor.com/lhQC-JBMt2YAAAAC/mar-naruto.gif)
+![](https://media.tenor.com/ltTgGYsee-IAAAAM/gojo-satoru-gojo.gif)
