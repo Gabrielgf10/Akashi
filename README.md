@@ -12,4 +12,4 @@ oculosgabriel0876@gmail.com
 
 @Akashi
 
-![](https://media.tenor.com/ltTgGYsee-IAAAAM/gojo-satoru-gojo.gif)
+![](https://media.tenor.com/isiuiqplCYIAAAAC/gojo-satoru.gif)
